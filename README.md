@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @peezd
-- 👀 I’m interested in product management and product strategy, technical innovation, etc.
+- 👀 I’m interested in product management and product strategy, Fintech / Defi,technical innovation, mission based companies, and of course puppies. All the puppies.
 - 📫 How to reach me ... micah.evans at protonmail.com, or hit me on linkedin https://www.linkedin.com/in/micah-evans/ 
 
 <!---
